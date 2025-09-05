@@ -50,7 +50,7 @@ Caelynn's smile faltered slightly. "I was told this area was open to the public 
 
 "Well, I... that is, I assumed..." Caelynn's face was going red in a way that suggested she wasn't used to being challenged. "Do you know who my father is?"
 
-"Should I?" 
+"Should I?"
 
 One of the guards—a thick-necked man with scars on his knuckles—stepped forward. "Show some respect, runner. You're talking to the daughter of Duke Thorne's cousin."
 
@@ -80,7 +80,7 @@ Pen shook her head. The Guild had scholars who specialized in the old tongue, bu
 
 But as she started sketching the symbols, something strange happened. The carved lines seemed to blur and shift, and for just a moment, she could almost—
 
-*Run.*
+_Run._
 
 The word formed in her mind with perfect clarity, though she had no idea where it came from. Her hand stilled on the paper, charcoal suspended halfway through a symbol.
 
@@ -90,7 +90,7 @@ He shook his head, eyes still fixed on the walls. "Just thinking out loud."
 
 But Pen was sure she'd heard something. A voice she didn't recognize, urgent and afraid. She forced herself to keep drawing, copying each symbol as precisely as she could, but the feeling of wrongness continued to grow. The air in the chamber felt thick, pressing against her lungs like water.
 
-*They're coming.*
+_They're coming._
 
 This time there was no mistaking it. The voice was definitely not Armen's, and it was definitely inside her head. Pen dropped her charcoal and grabbed Armen's arm.
 

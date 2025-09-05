@@ -176,27 +176,32 @@ epilogue: Pen and August are shown to have been blown to one of the floating isl
 - **Plot:** Cultist summons chimera. Pen fights with instinctive, unnatural movements. Overpowered, drugged, dragged away.
 - **Romance:** Foreshadow: her combat synergy feels like sparring with someone unseen (past-life echoes).
 
+**Ch. 10 — First Impressions**
+
+- **Plot:** While drugged and unconscious, Pen's hazy mind recalls the first time she met August. The moment is fragmented, dreamlike and voices that aren't her own give commentary as if they know both of them intimately.
+- **Romance:** We get to see how they first met, and the initial sparks of attraction that were there even then.
+
 ---
 
 ## **Act III — Betrayal & Revelation**
 
-**Ch. 10 — Shackles in the Dark**
+**Ch. 11 — Shackles in the Dark**
 
 - **Plot:** Pen awakens bound. Armen reveals cult loyalty, obsession, forced kiss.
 - **Romance:** **Anti-romance scene** — obsession vs intimacy. Highlights contrast with August.
 
-**Ch. 11 — Harbinger’s Shadow**
+**Ch. 12 — Harbinger’s Shadow**
 
 - **Plot:** Envy (Harbinger) arrives. Calls her “Fated.” Orders Armen to prepare her for ritual.
 - **Worldbuilding:** Introduce Harbingers as more than cult figures.
 - **Romance:** Envy drops hints about August’s history with her → plants suspicion.
 
-**Ch. 12 — Flight Through Fire**
+**Ch. 13 — Flight Through Fire**
 
 - **Plot:** Ritual chamber set-piece. Pen injures Armen, breaks free, flees. Voices of her **past lives** guide her.
-- **Romance:** The voices are _herself_ — not August — reinforcing her mistrust of fate.
+- **Romance:** The voices are _herself_ — but not just her current self. They are echoes of all her past lives, each with their own desires and fears.
 
-**Ch. 13 — Collision Course**
+**Ch. 14 — Collision Course**
 
 - **Plot:** Pen collides with August in tunnels. Electric resonance. He scolds her, insists on escape.
 - **Romance:** **First true closeness.** She resists until her own voice whispers: “Trust him.”
@@ -206,18 +211,18 @@ epilogue: Pen and August are shown to have been blown to one of the floating isl
 
 ## **Act IV — Harbinger’s Wrath**
 
-**Ch. 14 — Surface Showdown**
+**Ch. 15 — Surface Showdown**
 
 - **Plot:** They breach surface. Envy + cultists waiting. August unleashes devastating fire magic.
 - **Romance:** Pen sees August with awe → terrifying and attractive.
 
-**Ch. 15 — Daggers in Tandem**
+**Ch. 16 — Daggers in Tandem**
 
 - **Plot:** August arms her with daggers → instinctive fluency. They fight Envy in tandem.
 - **Romance:** **Battle intimacy.** Move like past-life partners.
 - **Spice Seed:** back-to-back fighting, breath against skin.
 
-**Ch. 16 — Jealous Detonation**
+**Ch. 17 — Jealous Detonation**
 
 - **Plot:** Envy self-detonates. August shields Pen, pulling her close. Explosion hurls them away.
 - **Romance:** **Forced closeness, adrenaline.**
@@ -227,7 +232,7 @@ epilogue: Pen and August are shown to have been blown to one of the floating isl
 
 ## **Epilogue — The Truth’s Edge**
 
-**Ch. 17 — Stranded on the Sky Isle**
+**Ch. 18 — Stranded on the Sky Isle**
 
 - **Plot:** They awaken on floating island. Pen demands answers. August reveals reincarnation cycle.
 - **Romance:** **Vulnerability + revelation.**
